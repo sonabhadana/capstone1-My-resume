@@ -1,1 +1,1 @@
-# capstone1-My-resume
+# capstone1-Myresume
